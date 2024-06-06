@@ -41,8 +41,4 @@ There is a general fall in stock prices in may, August and November. The reason 
 - Risk Averse investors should consider Visa. It has showed the lowest risk
 - Tesla is an optimal investment choice. There is a good bance between risk and reward.
 - March, May, September is the best month to buy stock as data shows a month after these months stock prices increases generally.
-- 
-
-8.  
-9. 
-10. 
+  
